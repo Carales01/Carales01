@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Carales01
+- 👀 I’m interested in expirience and learning abilities in the office and technologic evnets.
+- 🌱 I’m currently learning AI, Analytics, Google Search Control, Generative AI, LLMs, and much more...
+- 💞️ I’m looking to collaborate on Open Source Projects withowt compromise
+- 📫 How to reach me <Notion page in progress>
